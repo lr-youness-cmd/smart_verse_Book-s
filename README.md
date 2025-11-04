@@ -1,1 +1,0 @@
-# smart_verse_Book-s
